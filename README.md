@@ -2,10 +2,7 @@
 
 ![Image](https://github.com/user-attachments/assets/4d7b388c-2e31-48c0-9d23-2a30132ed282)
 
-![gif-rio-mudando.gif](https://i.postimg.cc/wjZV8bmr/gif-rio-mudando.gif)
-
-
-
+![Image](https://github.com/user-attachments/assets/40f7e665-64d0-4071-9c9f-bdb330810120)
 
 
 
